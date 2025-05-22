@@ -1,4 +1,4 @@
-#Zenith Labs Joint N-11 (Official Update) Get Relief From Joint Stiffness And Pain
+# Zenith Labs Joint N-11 (Official Update) Get Relief From Joint Stiffness And Pain
 
 <h1 style="text-align: left;"><strong>Zenith Labs Joint N-11</strong></h1>
 <p><strong>OFFICIAL SITE: <a href="https://www.globalfitnessmart.com/get-joint-n-11">Joint N-11&trade; | ORDER HERE</a></strong></p>
@@ -10,7 +10,6 @@
 <p><strong>EXCLUSIVE OFFER:</strong> Get it now for just $49 &ndash; only on the official website!</p>
 <p><strong>100% Risk-Free Purchase &ndash;</strong> 180-Day Money-Back Guarantee!</p>
 <p><strong>ORDER HERE &rarr;</strong> Joint N-11 [Official Website Link - <a href="https://www.globalfitnessmart.com/get-joint-n-11">https://www.globalfitnessmart.com/get-joint-n-11</a>]</p>
-<p><strong style="font-family: Lexend;"><span style="background-color: #fff2cc;"><span style="color: red;">VISIT OUR OFFICIAL FACEBOOK PAGE -&nbsp;<a href="https://www.facebook.com/glucoarmorreviews/">Joint N-11</a></span></span></strong></p>
 <h3 style="text-align: center;"><a href="https://jointn11-usa.systeme.io/"><strong style="background-color: #fce5cd; font-family: georgia;"><span style="color: red;">FLASH SALE ALERT</span>! Limited Stock Available &ndash; Grab Your Offer Today!</strong></a></h3>
 <h3 style="text-align: center;"><a href="https://jointn11-usa.systeme.io/"><strong style="background-color: #fce5cd; color: red; font-family: georgia;">!!Buy Now Joint N-11!!</strong></a></h3>
 <div class="separator" style="clear: both; text-align: center;"><a style="margin-left: 1em; margin-right: 1em;" href="https://www.globalfitnessmart.com/get-joint-n-11"><img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjLHrki3lNl-20sjCjzt65XnDTwHnoCVD56s4a2eL4cH_cz4H35NTV7oh_h0tRHQc1UBqZ1NW3PDo4z8nxEO-iUJbfESc5xYP1CbEFoG6ro3mP7wuweSaNKtRfd96bO7ZfrUD1EKHyvtyflMNbSkutEIMt_VTa5Vr5lVYGyfomD254Mk_U6K2phwYOYQ11P/w640-h308/Joint%20N-11%201.jpg" alt="" width="640" height="308" border="0" data-original-height="724" data-original-width="1501" /></a></div>
